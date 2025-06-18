@@ -1,1 +1,1 @@
-# Amoghparab my first claa
+# Amoghparab my first class
